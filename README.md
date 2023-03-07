@@ -1,2 +1,2 @@
-# adams-s-game-and-mod-beta-s
-dccdididididi
+#Adams mod's
+download beta's and source code here!
